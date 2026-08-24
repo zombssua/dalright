@@ -1,5 +1,4 @@
-hi gauys i quit dont meddle in my bussiness and ask why i quit ;-; Im not sayin why ok?
-
+hi gauys i quit dont meddle in my bussiness and ask why i quit ;-; Im not sayin why ok?/update : i don quit anymore ill js not play often
 i feel lik my friends hateme :( i dk hwy but i KNOW they do BRo idgaf tho if they actualyl do 
 
 Anyways ignore my mispel / typos . i willupdate this repo wehneveri iwanna rant or vent.
