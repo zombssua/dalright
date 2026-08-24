@@ -5,6 +5,8 @@ i feel lik my friends hateme :( i dk hwy but i KNOW they do BRo idgaf tho if the
 Anyways ignore my mispel / typos . i willupdate this repo wehneveri iwanna rant or vent.
 
 
-aug 24
+                                                                                                                                                                                                                                                                                                                                                                                                
+                                                                                                                                                                                                                                                                                                                                                                                                
+aug 24                                                                                                                                                            
 I WANna ignore everyone so badly but im a sensitive fuck and check my lapto for notifications to see if they even care that i didnt talk to them
 im a loner
